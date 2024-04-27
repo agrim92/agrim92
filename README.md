@@ -1,7 +1,5 @@
-### Hi there 👋
 ![212284115-f47cd8ff-2ffb-4b04-b5bf-4d1c14c0247f](https://github.com/agrim92/agrim92/assets/68190624/6ea628e9-5be6-484e-b20b-9bd4ceb09cc3)
-
-![212750155-3ceddfbd-19d3-40a3-87af-8d329c8323c4](https://github.com/agrim92/agrim92/assets/68190624/03a50828-93ad-4ff3-a854-0bd7425e42be)
+### Hey there, I am Agrim Saksena
 
 
 <!--
