@@ -1,5 +1,6 @@
 ### Hi there 👋
-![github profile](https://github.com/agrim92/agrim92/assets/68190624/3ad4ea7c-fbe3-4417-9586-a8b8c7633f4b)
+![github profile](https://github.com/agrim92/agrim92/assets/68190624/b1eedaf9-fee6-4569-bca9-93e60028c56a)
+
 
 <!--
 **agrim92/agrim92** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
