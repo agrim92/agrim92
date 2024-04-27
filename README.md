@@ -1,6 +1,7 @@
 ![212284100-561aa473-3905-4a80-b561-0d28506553ee](https://github.com/agrim92/agrim92/assets/68190624/cd950ecf-d0a9-427f-bb36-24bea830e7c9)
 
-BRB, I'M ON LUNCH BREAK
+on vacay
+
 ![240815616-7b282ec6-fcc3-4600-90a7-2c3140549f58](https://github.com/agrim92/agrim92/assets/68190624/a76de72d-0283-4c55-99a9-94642c41ca88)
 
 
